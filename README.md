@@ -1,5 +1,5 @@
 <p align="center" width="100%">
-    <img width="50%" src="https://github.com/user-attachments/assets/799e9dc0-097d-4187-a3fa-7e1ab5826d73">
+    <img width="50%" src="https://github.com/user-attachments/assets/8b371b0a-ecd3-437e-a7c6-3380988766de">
 </p>
 
 <p align="center" width="100%"> $\color{#A87852}{☆}$
