@@ -10,4 +10,4 @@
 <p align="center" width="100%"> i really don't like the gravity falls fandom, so if you're a part of it, iwec.
 
 <p align="center" width="100%"> $\color{#946C2C}{˗ˋ‎ ‎ 𝙙𝙣𝙞‎ ‎ ˊ˗}$
-<p align="center" width="100%"> billford/billstan/fiddbill, proship, fujoshi + himedanshi, bill kins + apologists, irls, age regressors
+<p align="center" width="100%"> billford/billstan/fiddbill, proship, fujoshi + himedanshi, bill kins + apologists, irls, age/pet regressors
