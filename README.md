@@ -6,7 +6,7 @@
 <p align="center" width="100%"> $\color{#A87852}{☆}$
 
 <p align="center" width="100%"> $\color{#855028}{˗ˋ‎ ‎ 𝙗𝙮𝙞‎ ‎ ˊ˗}$
-<p align="center" width="100%"> i'm a 𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜 ford / oc shipper. keep that in mind.
+<p align="center" width="100%"> i'm a 𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜 ford / oc shipper.
 <p align="center" width="100%"> i really don't like the gravity falls fandom, so if you're a part of it, iwec.
 
 <p align="center" width="100%"> $\color{#946C2C}{˗ˋ‎ ‎ 𝙙𝙣𝙞‎ ‎ ˊ˗}$
